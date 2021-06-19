@@ -1,0 +1,1 @@
+# Lorem-Beauty-Email-Template
